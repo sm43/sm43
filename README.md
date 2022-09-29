@@ -1,4 +1,4 @@
-### Hey there 👋
+### Hi! 👋
 
 I am Shivam Mukhade, a passionate developer working in India with more than 2 year of professional working experience. 🎯
 
